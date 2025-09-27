@@ -23,7 +23,6 @@ https://youtu.be/kgk-15CZFj0
 ![Screenshot](/PICTURES/15.jpg)
 ![Screenshot](/PICTURES/16.jpg)
 ![Screenshot](/PICTURES/17.jpg)
-![Screenshot](/PICTURES/18.jpg)
 ![Screenshot](/PICTURES/19.jpg)
 ![Screenshot](/PICTURES/20.jpg)
 ![Screenshot](/PICTURES/21.jpg)
